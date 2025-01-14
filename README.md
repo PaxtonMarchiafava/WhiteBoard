@@ -14,4 +14,5 @@ In order to move to the correct location on the white board, some simple trigono
 
 ## Outcome
 
-Pictures and videos soon to come
+![](/MEDIA/PAX05933.JPG)
+![](/MEDIA/PAX05934.JPG)
