@@ -14,5 +14,6 @@ In order to move to the correct location on the white board, some simple trigono
 
 ## Outcome
 
+![](/MEDIA/IMG_0744.JPG)
 ![](/MEDIA/PAX05933.JPG)
 ![](/MEDIA/PAX05934.JPG)
